@@ -1,5 +1,5 @@
 # G.H Raisoni college of engineering,Nagpur.
-My name is **Harshita Jethani** I am doing **bca** and i am in *2nd* year .
+My name is **Harshita Jethani** I am doing **BCA** and I am in *2nd* year .
 I am currently studying in **G.H.Raisoni college.** It is one of the best college in nagpur for engineering and all courses.
 **G.H.Raisoni college** is an autonomous engineering college affiliated to Rashtrasant Tukdoji Maharaj Nagpur University and is located in nagpur. the college was established in 1996 and is now run by Raisoni Group. The Chairman is **Sunil Raisoni** and Director is **Sachin Untawale**.
 
